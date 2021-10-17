@@ -1,2 +1,2 @@
-# Group 2 - Online Business
+# Online Store - Group 2
 Cameron Daize - 100697095
